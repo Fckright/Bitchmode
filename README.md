@@ -1,0 +1,2 @@
+# Bitchmode
+Hardcore
